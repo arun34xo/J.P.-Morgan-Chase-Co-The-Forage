@@ -6,7 +6,6 @@ Virtual work-experience provided by J.P Morgan Chase &amp; Co. in collaboration 
 </p>
 
 <p align="center"> 
-	| 
 	<b><a href="https://www.insidesherpa.com/modules/R5iK7HMxJGBgaSbvk/EbtbrgmwKbgqcXyGt" target="_blank">	
 </p>
 
